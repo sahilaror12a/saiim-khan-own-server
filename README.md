@@ -1,5 +1,3 @@
-# T.S. BRAND
-# TRICKS-BY-SATISH
-https://youtu.be/sA6jmjtvSAU?si=EwvdvbSy-ROEGQin
+# S.R.K BRAND
+# TRICKS_BY_SAIIM
 
-![Alt Text](https://i.imgur.com/GItqLpN.jpeg)
